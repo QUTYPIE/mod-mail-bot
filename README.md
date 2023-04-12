@@ -23,15 +23,6 @@ I'm Q U T Y P I E <3 ,<br>From West Bengal, India, <br>Worked at CSE student Aut
 
 [➕ INVITE GALAXY BOT ](https://dsc.gg/invite-galaxy-gg)
 
----
-
----
-
-[![DiscordBanner](https://invidget.switchblade.xyz/fz8QMYdVDq)](https://discord.gg/fz8QMYdVDq)<br /
-
-
-
----
 
 
 
@@ -41,7 +32,16 @@ I'm Q U T Y P I E <3 ,<br>From West Bengal, India, <br>Worked at CSE student Aut
 
 
 
----
+
+
+
+
+
+
+
+
+
+
 
 
 
